@@ -1,6 +1,6 @@
 
 <a rel="nofollow" href="https://ventut.com/spFFnwhb"> 
-    <img src="https://github.com/plinko-casino/Plinko-finland/blob/main/Screenshot_10.png">
+    <img src="https://github.com/plinko-uk/plinko-real-money/blob/main/image.png">
 </a>
 
 <h1><a rel="nofollow" href="https://ventut.com/spFFnwhb">PLAY PLINKO REAL MONEY UK</a></h1>
