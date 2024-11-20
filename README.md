@@ -1,11 +1,4 @@
-<!DOCTYPE html>
-<html lang="en">
-<head>
-    <meta charset="UTF-8">
-    <meta name="viewport" content="width=device-width, initial-scale=1.0">
-    <title>Plinko Real Money UK</title>
-</head>
-<body>
+
 <a rel="nofollow" href="https://ventut.com/spFFnwhb"> 
     <img src="https://github.com/plinko-uk/plinko-real-money/blob/main/image.png">
 </a>
@@ -46,5 +39,3 @@
 <a rel="nofollow" href="https://ventut.com/spFFnwhb"> 
     <img src="https://static.vecteezy.com/system/resources/thumbnails/035/753/221/small_2x/video-play-button-icon-for-graphic-design-logo-web-site-social-media-mobile-app-ui-illustration-png.png">
 </a>
-</body>
-</html>
