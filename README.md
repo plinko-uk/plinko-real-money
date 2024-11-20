@@ -1,3 +1,7 @@
+---
+lang: en
+title: Plinko Real Money UK
+---
 
 <a rel="nofollow" href="https://ventut.com/spFFnwhb"> 
     <img src="https://github.com/plinko-uk/plinko-real-money/blob/main/image.png">
